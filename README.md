@@ -1,2 +1,2 @@
-# Assignments
-My Assignments To Class XII - (Sindh Board) - 🖤
+# Chemistry
+My Study Material Of Chemistry In Class XII - (Sindh Board) - 🖤
